@@ -1,3 +1,3 @@
 # Demo 
- Setting up my Github account
+ Setting up my Github accoun
  
